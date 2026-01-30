@@ -7,7 +7,7 @@ Can usually be found people watching by the trees at the top of hermit hill
 
 I have 2 screens and almost always have my tab visable
 
-C+H is usually fine as long as I don't have any DNIs in my name but please ask first unless I have it in my name 
+C+H is usually fine as long as I don't have any DNIs in my name
 
 Green names are always welcome to C+H
 
